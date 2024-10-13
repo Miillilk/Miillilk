@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me: Nope
 - 😄 Pronouns: Damn
-- ⚡ Fun fact: This man has a Geometry Dash account (Miillilk)
+- ⚡ Fun fact: How can i publish a code on github -_-
 
 <!---
 Miillilk/Miillilk is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
